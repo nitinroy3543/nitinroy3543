@@ -1,4 +1,4 @@
-# Hi There:
+# Hi there!
 
 I am engineer with an interest in problem solving and innovative challenges. Always motivated to learn new things. Loves to play badminton. 
 
